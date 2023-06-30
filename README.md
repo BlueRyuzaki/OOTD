@@ -1,5 +1,0 @@
-# OOTD
-
-## Overview
-
-Description
